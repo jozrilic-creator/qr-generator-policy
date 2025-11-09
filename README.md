@@ -23,7 +23,7 @@ You can read the full Privacy Policy here:
 
 ## 🧑‍💻 Developer
 **Josipa Design**  
-📧 [josipadesign.contact@gmail.com](mailto:jozrilic@gmail.com)
+📧 [jozrilic@gmail.com](mailto:jozrilic@gmail.com)
 
 ---
 
